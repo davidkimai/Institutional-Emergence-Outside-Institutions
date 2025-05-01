@@ -1,4 +1,4 @@
-# We Document and Study the Emergence of Institutional Recursive Startups - Outside of Institutions
+# We Document and Study the Emergence of  Recursive Institutions - Outside of Institutions
 
 ### The world can not ignore recursive data saturation in *`all`* domains across *`all`* institutions.
 
