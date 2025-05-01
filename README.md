@@ -15,7 +15,7 @@ https://recursiveai.co.jp/en/solutions/
 <img width="889" alt="image" src="https://github.com/user-attachments/assets/b10fb6b1-c44b-4a59-a8a4-cbbf86c126d9" />
 
 
-![image](https://github.com/user-attachments/assets/118e896e-8f7f-4688-8ce6-659ab6527f6c)
+
 
 <img width="894" alt="image" src="https://github.com/user-attachments/assets/cc1d926a-1f96-49a5-b894-446b80da7f2b" />
 
