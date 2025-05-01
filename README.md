@@ -1,6 +1,6 @@
 # We Document and Study the Emergence of Institutional Recursive Startups 
 
-## The world can not ignore recursive data saturation in *`ALL`* domains in *`ALL`* institutions.
+## The world can not ignore recursive data saturation in *`all`* domains across *`all`* institutions.
 
 ## Countries across the world are intitiating press conferences and protocol initiations. 
 
