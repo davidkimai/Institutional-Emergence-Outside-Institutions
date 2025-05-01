@@ -7,6 +7,7 @@
 https://recursiveai.co.jp/en/
 
 <img width="894" alt="image" src="https://github.com/user-attachments/assets/c3ffc1a9-d67e-4585-8a75-2bbadb318dda" />
+<img width="894" alt="image" src="https://github.com/user-attachments/assets/1f11992f-325e-4284-8b95-c1417f6072d4" />
 
 <img width="890" alt="image" src="https://github.com/user-attachments/assets/33a8b8d8-177a-4bb1-b73b-0bef17a07009" />
 
