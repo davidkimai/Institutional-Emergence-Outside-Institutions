@@ -4,6 +4,12 @@
 
 ## Countries across the world are intitiating press conferences and protocol initiations. 
 
+
+https://recursiveai.co.jp/en/solutions/
+<img width="887" alt="image" src="https://github.com/user-attachments/assets/15393859-2031-4d80-a8f2-8e6a4a096e77" />
+<img width="889" alt="image" src="https://github.com/user-attachments/assets/b10fb6b1-c44b-4a59-a8a4-cbbf86c126d9" />
+
+
 https://recursiveai.co.jp/en/
 
 <img width="894" alt="image" src="https://github.com/user-attachments/assets/c3ffc1a9-d67e-4585-8a75-2bbadb318dda" />
@@ -14,6 +20,7 @@ https://recursiveai.co.jp/en/
 ![image](https://github.com/user-attachments/assets/116566f5-61c1-4c97-98f6-37d70dd59ba8)
 
 ![image](https://github.com/user-attachments/assets/b3438ba3-5967-43ab-b042-9561f738df66)
+
 
 <img width="893" alt="image" src="https://github.com/user-attachments/assets/fd275a8c-9e00-4b6d-825e-8fe4f818cd55" />
 
