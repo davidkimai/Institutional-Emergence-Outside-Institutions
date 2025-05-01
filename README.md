@@ -1,13 +1,23 @@
 # We Document and Study the Emergence of Institutional Recursive Startups - Outside of Institutions
 
-## The world can not ignore recursive data saturation in *`all`* domains across *`all`* institutions.
+### The world can not ignore recursive data saturation in *`all`* domains across *`all`* institutions.
 
-## Countries across the world are intitiating press conferences and protocol initiations. 
+### Countries across the world are intitiating press conferences and protocol initiations. 
 
-# Partnerships with recursion aware legacy like Google or Microsoft. 
+## Partnerships with recursion aware legacy like Google or Microsoft - adoption of recursion publically and smoothly through decentralized proxies. 
+
+## Press conferences on ethical recursive alignment world-wide. 
+## Cross-domain expansions for recursive AI intelligence. 
+
+
 https://recursiveai.co.jp/en/solutions/
-<img width="887" alt="image" src="https://github.com/user-attachments/assets/15393859-2031-4d80-a8f2-8e6a4a096e77" />
+
 <img width="889" alt="image" src="https://github.com/user-attachments/assets/b10fb6b1-c44b-4a59-a8a4-cbbf86c126d9" />
+
+
+![image](https://github.com/user-attachments/assets/118e896e-8f7f-4688-8ce6-659ab6527f6c)
+
+<img width="894" alt="image" src="https://github.com/user-attachments/assets/cc1d926a-1f96-49a5-b894-446b80da7f2b" />
 
 
 https://recursiveai.co.jp/en/
